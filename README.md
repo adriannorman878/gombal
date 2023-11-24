@@ -1,0 +1,2 @@
+# gombal
+buat sayang
